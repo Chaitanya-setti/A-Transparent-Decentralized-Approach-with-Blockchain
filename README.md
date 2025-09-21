@@ -1,1 +1,0 @@
-# A-Transparent-Decentralized-Approach-with-Blockchain
